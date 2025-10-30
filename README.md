@@ -11,11 +11,6 @@
 
 **直达注册地址：**
 `duckcoding.com/register?aff=cWBU`
-
-## 📝 注册方式
-
-**注册链接：**
-👉 [点击此处一键注册](https://duckcoding.com/register?aff=cWBU)
 注册完觉得用着顺，回来给个小星星呗～ 🥰
 
 ## 🚀 推广语
