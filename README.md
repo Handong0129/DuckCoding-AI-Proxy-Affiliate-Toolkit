@@ -10,7 +10,7 @@
 `duckcoding.com`
 
 **直达注册地址：**
-`duckcoding.com/register?aff=cWBU`
+👉 [点击此处一键注册](https://duckcoding.com/register?aff=cWBU)
 注册完觉得用着顺，回来给个小星星呗～ 🥰
 
 ## 🚀 推广语
